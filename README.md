@@ -1,0 +1,2 @@
+# synoda
+F de fallecido 
